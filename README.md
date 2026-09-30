@@ -1,1 +1,1 @@
-# Tire-retmen-Emlak
+# Tire-Ogretmen-Emlak
